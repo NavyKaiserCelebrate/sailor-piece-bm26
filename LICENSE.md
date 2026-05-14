@@ -1,4 +1,4 @@
-
+Download steal a brainrot vip Scripts for steal a brainrot, the best script available, featuring speed and auto-sell. This powerful tool ensures you have the upper hand in every
 
 
 
